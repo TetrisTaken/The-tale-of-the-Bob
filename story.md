@@ -1,0 +1,1 @@
+There was once a boy named Bob and he had a magical light that would shoot erasers. His arch nemesis was a child named Bobert.
